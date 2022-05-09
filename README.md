@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Reddy2103
 - 👀 I’m interested in ... hacking Tools
-- 🌱 I’m currently learning ...in BTech
+- 🌱 I’m currently doing ...in BTech
 - 💞️ I’m looking to collaborate on ... Hacking club
 - 📫 How to reach me ... sukumarreddy2103@gmail.com!---
 
